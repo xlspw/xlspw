@@ -1,4 +1,4 @@
-<小蓝视频网r>
+<小蓝视频网>
 
 【免费同志吃瓜，小蓝独家爆料】
 
@@ -16,4 +16,4 @@ App永久地址：https://bluedmv.site
 
 官方推特：https://x.com/xiaolanshipin01
 
-【回家邮箱】： shipinxiaolan@gmail.com 发送任意信息获取最回家地址
+回家邮箱：shipinxiaolan@gmail.com 发送任意信息获取最回家地址
